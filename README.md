@@ -1,0 +1,3 @@
+- 👋 Hi, I’m YogaNarasimha
+- 👀 I’m interested in working as Oracle Apps Technical Consultant
+- 🌱 I’m currently pursuing my masters at NorthWest Missouri State University
